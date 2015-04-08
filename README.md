@@ -143,86 +143,112 @@ Anyone can add to this list. To add to the list,
 
 * [WFSU (Florida Public Radio) in Tallahassee, Florida**
 
-[Facebook](https://www.facebook.com/wfsumedia), [Twitter](https://twitter.com/wfsunews)
+- [Facebook](https://www.facebook.com/wfsumedia)
 
-People: 
+- [Twitter](https://twitter.com/wfsunews)
 
-Lynn Hatter, news director [Twitter](https://twitter.com/hatterlynn)
+People
 
-Jessica Palombo, reporter/producer [Twitter](https://twitter.com/JessicaPubRadio) 
+- [Lynn Hatter](https://twitter.com/hatterlynn), News Director
 
-Sascha Cordner, ATC host/reporter [Twitter](https://twitter.com/SaschaCordner)
+- [Jessica Palombo](https://twitter.com/JessicaPubRadio), Reporter/Producer
 
-Regan McCarthy, reporter/assignment editor [Twitter](https://twitter.com/Regan_McCarthy) 
+- [Sascha Cordner](https://twitter.com/SaschaCordner), ATC Host/Reporter
 
-Tom Flanigan, program director for news [Twitter](https://twitter.com/Flanigan_Tom)
+- [Regan McCarthy](https://twitter.com/Regan_McCarthy), Reporter/Assignment Editor
 
-Nick Evans, news assistant/reporter [Twitter](https://twitter.com/NckEvns)
+- [Tom Flanigan](https://twitter.com/Flanigan_Tom), Program Director for News
+
+- [Nick Evans](https://twitter.com/NckEvns), News Assistant/Reporter
 
 
 **St. Louis Public Radio in St. Louis, Missouri**
 
-[Facebook](https://www.facebook.com/stlpublicradio), [Twitter](https://twitter.com/stlpublicradio), [Instagram](http://instagram.com/stlpublicradio)
+Station
 
-People:
+- [Facebook](https://www.facebook.com/stlpublicradio)
 
-Kelsey Proud, engagement editor (main voice behind station social accounts) [Twitter](https://twitter.com/kelseyproud)
+- [Twitter](https://twitter.com/stlpublicradio)
 
-Brent Jones, data/visual journalist [Twitter](https://twitter.com/brentajones)
+- [Instagram](http://instagram.com/stlpublicradio)
 
-[Staff Twitter List](https://twitter.com/stlpublicradio/lists/stlpr-staff) 
+People
+
+- [Kelsey Proud](https://twitter.com/kelseyproud), Engagement Editor (main voice behind station social accounts) 
+
+- [Brent Jones](https://twitter.com/brentajones), Data/Visual Journalist 
+
+- [Staff Twitter List](https://twitter.com/stlpublicradio/lists/stlpr-staff)*
 
 **WFAE in Charlotte, NC**
 
-Station: [Facebook](https://www.facebook.com/wfae90.7), [Twitter](https://twitter.com/wfae), [Instagram](http://instagram.com/wfaepublicradio)
+Station 
 
-Charlotte Talks: [Facebook](https://www.facebook.com/charlottetalks), [Twitter](https://twitter.com/charlottetalks), [Instagram](http://instagram.com/charlottetalks)
+- [Facebook](https://www.facebook.com/wfae90.7)
 
-People:
+- [Twitter](https://twitter.com/wfae)
 
-[Katie Herzog](https://twitter.com/krherzog), Social Media Coordinator/Web Producer
+- [Instagram](http://instagram.com/wfaepublicradio)
 
-[Jennifer Lang](https://twitter.com/jlang), Web Producer
+Charlotte Talks
 
-[Greg Collard](https://twitter.com/gregcollardwfae), News Director
+- [Facebook](https://www.facebook.com/charlottetalks)
 
-[Lisa Miller](https://twitter.com/lisawfae), Reporter 
+- [Twitter](https://twitter.com/charlottetalks)
 
-[Michael Tomsic](https://twitter.com/michaeltomsic), Reporter 
+- [Instagram](http://instagram.com/charlottetalks)
 
-[Marshall Terry](https://twitter.com/wfaemarshall), Reporter 
+People
 
-[Ben Bradford](https://twitter.com/jbenbradford), Reporter 
+- [Katie Herzog](https://twitter.com/krherzog), Social Media Coordinator/Web Producer
 
-[Tom Bullock](https://twitter.com/tomwfae), Reporter 
+- [Jennifer Lang](https://twitter.com/jlang), Web Producer
 
-[Tasnim Shamma](https://twitter.com/tasnims), Reporter 
+- [Ben Bradford](https://twitter.com/jbenbradford), Reporter 
 
-[Kevin Kniestedt](https://twitter.com/WFAE_Kevin), Reporter 
+- [Tom Bullock](https://twitter.com/tomwfae), Reporter 
 
-[Duncan McFadyen](https://twitter.com/wfaeduncan), Reporter 
+- [Greg Collard](https://twitter.com/gregcollardwfae), News Director
+
+- [Kevin Kniestedt](https://twitter.com/WFAE_Kevin), Reporter 
+
+- [Duncan McFadyen](https://twitter.com/wfaeduncan), Reporter
+
+- [Lisa Miller](https://twitter.com/lisawfae), Reporter 
+ 
+- [Tasnim Shamma](https://twitter.com/tasnims), Reporter 
+
+- [Marshall Terry](https://twitter.com/wfaemarshall), Reporter 
+
+- [Michael Tomsic](https://twitter.com/michaeltomsic), Reporter 
 
 **WPLN Nashville Public Radio**
 
-Station [Facebook](https://www.facebook.com/NashvillePublicRadio), [Twitter](https://twitter.com/wpln), [Instagram](http://instagram.com/wpln)
+Station 
 
-People: 
+- [Facebook](https://www.facebook.com/NashvillePublicRadio)
 
-[WPLN Newsroom](https://twitter.com/WPLN/lists/wpln-newsroom)
+- [Twitter](https://twitter.com/wpln)
 
-Anita Bugg, news director
+- [Instagram](http://instagram.com/wpln)
 
-[Blake Farmer](https://twitter.com/flakebarmer), assistant news director
+People
 
-[Mack Linebaugh](https://twitter.com/mackstarks), director of digital services
+- [WPLN Newsroom](https://twitter.com/WPLN/lists/wpln-newsroom)
 
-[Bradley George](https://twitter.com/wplnbradley), Morning Edition host
+- Anita Bugg, News Director
 
-[Nina Cardona](https://twitter.com/ThatNinaCardona), ATC host
+- [Blake Farmer](https://twitter.com/flakebarmer), Assistant News Director
 
-[Emily Siner](https://twitter.com/SinerSays), reporter
+- [Mack Linebaugh](https://twitter.com/mackstarks), Director of Digital Services
 
-[Bobby Allyn](https://twitter.com/BobbyAllyn), reporter
+- [Bradley George](https://twitter.com/wplnbradley), Morning Edition Host
+
+- [Nina Cardona](https://twitter.com/ThatNinaCardona), ATC Host
+
+- [Emily Siner](https://twitter.com/SinerSays), Reporter
+
+- [Bobby Allyn](https://twitter.com/BobbyAllyn), Reporter
 
 **WBUR, Boston's NPR News Station**
 
